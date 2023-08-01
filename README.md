@@ -6,4 +6,4 @@ DOWNLOAD IT FROME GOOGLE DRIVE LINK GIVEN BELOW
 
 Copy the below link 
 
-https://drive.google.com/drive/folders/1RxKbBs6lAZEkvRO4-84uwnFqygTDdQUC?usp=sharing
+https://drive.google.com/drive/folders/1rU3015u7L3aFg0239uf9q1WUyhd2p3yz?usp=sharing
